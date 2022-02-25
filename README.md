@@ -9,3 +9,5 @@ che nel pensier rinova la paura!
 Tant’è amara che poco è più morte;
 ma per trattar del ben ch’i’ vi trovai,
 dirò de l’altre cose ch’i’ v’ ho scorte. 
+
+*Dante Giardina, 2022*
